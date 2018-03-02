@@ -14,4 +14,4 @@ D'abord disposer d'un outil de communication EFFICACE au sein d'une communaute d
 plusieurs millions de personnes.
 
 Ensuite ouvrir cette communaute au monde des autres civilisations afin de pouvoir
-tirer profit de leurs experiences, mais aussi si possible partager la leur.
+tirer profit de leurs cultures, mais aussi si possible partager la leur.
